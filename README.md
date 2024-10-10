@@ -4,4 +4,4 @@ Delay no more chow hi!
 
 
 ![](https://liwenjunpictures.oss-cn-shenzhen.aliyuncs.com/202410041601763.gif)
-![](https://liwenjunpictures.oss-cn-shenzhen.aliyuncs.com/xiaohu.mp4)
+![](https://liwenjunpictures.oss-cn-shenzhen.aliyuncs.com/xiaohu)
