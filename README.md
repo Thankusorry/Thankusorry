@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Delay no more chow hi!
+Delay no more 
 
 ![](https://liwenjunpictures.oss-cn-shenzhen.aliyuncs.com/202410101243824.gif)
 
